@@ -9,3 +9,4 @@ Hi I'm Zina, a digital communication specialist based in Madagascar
 📫 How to reach me: here is my linkedin profile: https://www.linkedin.com/in/zina-raveloson/ 
 
 I look forward to collaborating with you
+:)
